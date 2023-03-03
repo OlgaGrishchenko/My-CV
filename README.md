@@ -1,1 +1,1 @@
-![Beige and Green Minimal Modern Creative Resume](https://user-images.githubusercontent.com/104859965/221859544-ad54214d-9aef-48aa-96d4-5461e923a7a9.jpg)
+![Olga Grishchenko Frontend](https://user-images.githubusercontent.com/104859965/222650875-25a9c33b-1eff-44f4-875f-76c0c0e312aa.jpg)
